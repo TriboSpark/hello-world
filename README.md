@@ -2,4 +2,4 @@
 new at this
 Suh dude! 
 
-I like chese and all of the things.
+I like cheese and all of the things.
